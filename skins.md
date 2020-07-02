@@ -15,13 +15,13 @@
 # [~+CCCCCCCCC](https://www.dropbox.com/s/le1p7vibmgiv9to/-%20Hey%20DT%20Purple%20Ryuk%20edit%20-.osk?dl=0)
 ![]()
 
-# [~+Smuglazzzz Gloria](https://www.dropbox.com/s/le1p7vibmgiv9to/-%20Hey%20DT%20Purple%20Ryuk%20edit%20-.osk?dl=0)
+# [~+Smuglazzzz Gloria](https://drive.google.com/file/d/1gTb9GQDdGAfMbGU3g0QFyVeIuWEaS31K/view?usp=sharing)
 ![]()
 
-# [~+Smuglazzzz Marnie but playable](https://www.dropbox.com/s/le1p7vibmgiv9to/-%20Hey%20DT%20Purple%20Ryuk%20edit%20-.osk?dl=0)
+# [~+Smuglazzzz Marnie but playable](https://drive.google.com/file/d/1COnxXjbQo4PBPsmmPNblS7NYuxTTYMkT/view?usp=sharing)
 ![]()
 
-# [~+Smuglazzzz Marnie](https://www.dropbox.com/s/le1p7vibmgiv9to/-%20Hey%20DT%20Purple%20Ryuk%20edit%20-.osk?dl=0)
+# [~+Smuglazzzz Marnie](https://drive.google.com/file/d/1dlRixlVQYnCwF4Ss1VjP8q2At9ID41NM/view?usp=sharing)
 ![]()
 
 # [~+Smuglazzzzzz BluE](https://www.dropbox.com/s/le1p7vibmgiv9to/-%20Hey%20DT%20Purple%20Ryuk%20edit%20-.osk?dl=0)
