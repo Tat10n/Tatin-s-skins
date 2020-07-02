@@ -2,9 +2,10 @@
 
 # 
 
-## If a link is down pls dm me on twitter @sasugatatin
+### If a link is down pls dm me on twitter @sasugatatin
 
-## These are not all the skins but I will try to include as many as I can
+### These are not all the skins but I will try to include as many as I can
+### also I will add screenshots when I have time
 
 # [~+AAAAAAA](https://cdn.discordapp.com/attachments/427214130756452353/697696460267061319/boop.osk)
 ![]()
