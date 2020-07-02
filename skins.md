@@ -14,7 +14,7 @@
 ![]()
 
 # [- r slash cookie](https://drive.google.com/file/d/1I_kMe5VTjcjiOtBnjjYDM_s1lCxaAC1q/view?usp=sharing)
-![]()
+![](https://cdn.discordapp.com/attachments/728327069670310039/728327432700166205/screenshot082.jpg)[](https://cdn.discordapp.com/attachments/728327069670310039/728327441684365342/screenshot086.jpg)
 
 # [~+CCCCCCCCC](https://drive.google.com/file/d/19-GFltZ62yY2wcH5dCKoE9nemXOZ3_uk/view?usp=sharing)
 ![]()
