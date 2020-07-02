@@ -8,10 +8,10 @@
 ### also I will add screenshots when I have time
 
 # [~+AAAAAAA](https://drive.google.com/file/d/1JILw5EJ7Jfxmnpj-rjVtH8NCxgz1edzJ/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/728327069670310039/728327497388785684/screenshot085.jpg)![](https://cdn.discordapp.com/attachments/728327069670310039/728327500320473229/screenshot084.jpg)
+![](https://cdn.discordapp.com/attachments/728327069670310039/728327500320473229/screenshot084.jpg)![](https://cdn.discordapp.com/attachments/728327069670310039/728327497388785684/screenshot085.jpg)
 
 # [- r slash 404 Aim Not Found](https://drive.google.com/file/d/1aq-AVNzR2S-WkifGLqzeWLBufGQYyjsf/view?usp=sharing)
-![]()
+![](https://cdn.discordapp.com/attachments/728327069670310039/728327579999797278/screenshot083.jpg)![](https://cdn.discordapp.com/attachments/728327069670310039/728327571850133574/screenshot080.jpg)
 
 # [- r slash cookie](https://drive.google.com/file/d/1I_kMe5VTjcjiOtBnjjYDM_s1lCxaAC1q/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/728327069670310039/728327432700166205/screenshot082.jpg)![](https://cdn.discordapp.com/attachments/728327069670310039/728327441684365342/screenshot086.jpg)
