@@ -47,16 +47,16 @@
 ![](https://cdn.discordapp.com/attachments/728327069670310039/728333527220879450/screenshot117.jpg)![](https://cdn.discordapp.com/attachments/728327069670310039/728333532476342272/screenshot118.jpg)
 
 # [~+DF 5 But the slider is updated](https://drive.google.com/file/d/1rJV5INpfaYPqvhaMUxT3_9jH2X66qa1t/view?usp=sharing)
-![]()![]()
+![](https://cdn.discordapp.com/attachments/728327069670310039/728334896522592316/screenshot120.jpg)
 
 # [~+DF 7](https://drive.google.com/file/d/1HYMyms_2ki_MPdBw3zxWKYPJ14gJZ_dK/view?usp=sharing)
-![]()![]()
+![](https://cdn.discordapp.com/attachments/728327069670310039/728335620275175454/screenshot121.jpg)![](https://cdn.discordapp.com/attachments/728327069670310039/728335633076191303/screenshot122.jpg)
 
 # [~+DF 8](https://drive.google.com/file/d/1iBLVC3lr8TrEMaHB5VPzgI7TqXTmS1F6/view?usp=sharing)
-![]()![]()
+![](https://cdn.discordapp.com/attachments/728327069670310039/728335688285683885/screenshot123.jpg)![](https://cdn.discordapp.com/attachments/728327069670310039/728335696296935544/screenshot124.jpg)
 
 # [~+DF 9](https://drive.google.com/file/d/1E949eGzsuOs9y12y1nCsSA0miyfliFlu/view?usp=sharing)
-![]()![]()
+![](https://cdn.discordapp.com/attachments/728327069670310039/728335719394705418/screenshot125.jpg)![](https://cdn.discordapp.com/attachments/728327069670310039/728335720774631554/screenshot126.jpg)
 
 # [~+lakas](https://drive.google.com/file/d/1DRNdSq92hVsrv-7D7pdqxJ9YZp-AY6rH/view?usp=sharing)
 ![]()![]()
