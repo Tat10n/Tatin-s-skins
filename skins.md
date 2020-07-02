@@ -7,16 +7,16 @@
 ### These are not all the skins but I will try to include as many as I can
 ### also I will add screenshots when I have time
 
-# [~+AAAAAAA](https://cdn.discordapp.com/attachments/427214130756452353/697696460267061319/boop.osk)
+# [~+AAAAAAA](https://drive.google.com/file/d/1JILw5EJ7Jfxmnpj-rjVtH8NCxgz1edzJ/view?usp=sharing)
 ![]()
 
 # [- r slash 404 Aim Not Found](https://drive.google.com/file/d/1aq-AVNzR2S-WkifGLqzeWLBufGQYyjsf/view?usp=sharing)
 ![]()
 
-# [- r slash cookie](https://www.dropbox.com/s/le1p7vibmgiv9to/-%20Hey%20DT%20Purple%20Ryuk%20edit%20-.osk?dl=0)
+# [- r slash cookie](https://drive.google.com/file/d/1I_kMe5VTjcjiOtBnjjYDM_s1lCxaAC1q/view?usp=sharing)
 ![]()
 
-# [~+CCCCCCCCC](https://www.dropbox.com/s/le1p7vibmgiv9to/-%20Hey%20DT%20Purple%20Ryuk%20edit%20-.osk?dl=0)
+# [~+CCCCCCCCC](https://drive.google.com/file/d/19-GFltZ62yY2wcH5dCKoE9nemXOZ3_uk/view?usp=sharing)
 ![]()
 
 # [~+Smuglazzzz Gloria](https://drive.google.com/file/d/1gTb9GQDdGAfMbGU3g0QFyVeIuWEaS31K/view?usp=sharing)
@@ -34,10 +34,10 @@
 # [~+Smuglazzzzzz](https://drive.google.com/file/d/1ilbRDqQIlO1jMS_cBNMz1w_93yaHi5st/view?usp=sharing)
 ![]()
 
-# [~+DF 2](https://www.dropbox.com/s/le1p7vibmgiv9to/-%20Hey%20DT%20Purple%20Ryuk%20edit%20-.osk?dl=0)
+# [~+DF 2](https://drive.google.com/file/d/1sy3S8APf3JbNMQU82D3t8lL2jw9Zz6OM/view?usp=sharing)
 ![]()
 
-# [~+DF 3](https://www.dropbox.com/s/le1p7vibmgiv9to/-%20Hey%20DT%20Purple%20Ryuk%20edit%20-.osk?dl=0)
+# [~+DF 3](https://drive.google.com/file/d/1JLbh962_eiDUoSWLsBA8LDJX4ZvRgGPc/view?usp=sharing)
 ![]()
 
 # [~+DF 4](https://drive.google.com/file/d/1mLbQq0EdFrSO3n4uHUcu-PHefZDeCHDt/view?usp=sharing)
