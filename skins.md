@@ -29,7 +29,7 @@
 
 # [~+Smuglazzzzzz](https://www.dropbox.com/s/le1p7vibmgiv9to/-%20Hey%20DT%20Purple%20Ryuk%20edit%20-.osk?dl=0)
 ![]()
-~+DF 3
+
 # [~+DF 2](https://www.dropbox.com/s/le1p7vibmgiv9to/-%20Hey%20DT%20Purple%20Ryuk%20edit%20-.osk?dl=0)
 ![]()
 
@@ -42,7 +42,7 @@
 # [~+DF 5](https://www.dropbox.com/s/le1p7vibmgiv9to/-%20Hey%20DT%20Purple%20Ryuk%20edit%20-.osk?dl=0)
 ![]()
 
-# [~+DF 5 But the slider is updated](https://www.dropbox.com/s/le1p7vibmgiv9to/-%20Hey%20DT%20Purple%20Ryuk%20edit%20-.osk?dl=0)
+# [~+DF 5 But the slider is updated](https://drive.google.com/file/d/1rJV5INpfaYPqvhaMUxT3_9jH2X66qa1t/view?usp=sharing)
 ![]()
 
 # [~+DF 7](https://www.dropbox.com/s/le1p7vibmgiv9to/-%20Hey%20DT%20Purple%20Ryuk%20edit%20-.osk?dl=0)
