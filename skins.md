@@ -61,5 +61,5 @@
 # [~+lakas](https://drive.google.com/file/d/1DRNdSq92hVsrv-7D7pdqxJ9YZp-AY6rH/view?usp=sharing)
 ![]()![]()
 
-# [~Rushia Skin [るしあ] Tatin edit](https://drive.google.com/file/d/1jwQcECxoh5yQMbcBD_3pntc4piLh3OmT/view?usp=sharing)
+# [~Rushia Skin [るしあ] Tatin edit](https://drive.google.com/file/d/1jwQcECxoh5yQMbcBD_3pntc4piLh3OmT/view?usp=sharing)[ main mapping skin atm, thanks][Gouhigashi](https://osu.ppy.sh/users/15608802)
 ![](https://cdn.discordapp.com/attachments/728327069670310039/811391314867519529/screenshot163.jpg)![](https://cdn.discordapp.com/attachments/728327069670310039/811391320110399548/screenshot164.jpg)
