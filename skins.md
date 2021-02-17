@@ -1,4 +1,5 @@
-# Sasugatatin's skins compilation
+# Tatin's commonly used skins
+###### At least when I still play
 
 # 
 
