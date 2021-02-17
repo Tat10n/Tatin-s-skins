@@ -7,7 +7,8 @@
 ### These are not all the skins but I will try to include as many as I can
 ### also I will add screenshots when I have time
 
-# [~Rushia Skin [るしあ] Tatin edit](https://drive.google.com/file/d/1jwQcECxoh5yQMbcBD_3pntc4piLh3OmT/view?usp=sharing) main mapping skin atm, thanks [Gouhigashi](https://osu.ppy.sh/users/15608802) for making this masterpiece
+# [~Rushia Skin [るしあ] Tatin edit](https://drive.google.com/file/d/1jwQcECxoh5yQMbcBD_3pntc4piLh3OmT/view?usp=sharing) 
+## ^main mapping skin atm, thanks [Gouhigashi](https://osu.ppy.sh/users/15608802) for making this masterpiece
 ![](https://cdn.discordapp.com/attachments/728327069670310039/811391314867519529/screenshot163.jpg)![](https://cdn.discordapp.com/attachments/728327069670310039/811391320110399548/screenshot164.jpg)
 
 # [~+AAAAAAA](https://drive.google.com/file/d/1JILw5EJ7Jfxmnpj-rjVtH8NCxgz1edzJ/view?usp=sharing)
