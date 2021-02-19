@@ -3,7 +3,7 @@
 
 # 
 
-### If a link is down pls dm me on twitter @sasugatatin
+### If a link is down pls dm me on twitter @Tat10n
 
 ### These are not all the skins but I will try to include as many as I can
 ### also I will add screenshots when I have time
