@@ -3,10 +3,9 @@
 
 # 
 
-### If a link is down pls dm me on twitter @Tat10n
-
-### These are not all the skins but I will try to include as many as I can
-### also I will add screenshots when I have time
+### These skins are simply just skins that I
+### use not skins that I made so
+### all credits goes to the creator of skins
 
 # [~Rushia Skin [るしあ] Tatin edit](https://drive.google.com/file/d/1jwQcECxoh5yQMbcBD_3pntc4piLh3OmT/view?usp=sharing) 
 ## ^main mapping skin atm, thanks [Gouhigashi](https://osu.ppy.sh/users/15608802) for making this masterpiece
